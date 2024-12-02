@@ -1,1 +1,1 @@
-# Soler-Sytem
+# Solar-Sytem
